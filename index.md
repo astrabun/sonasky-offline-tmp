@@ -14,4 +14,4 @@ Plase check back on [sonasky.app](https://sonasky.app/) for updates/details.
 
 Thank you again.
 
-- Astra 🐰💙
+\- Astra 🐰💙
